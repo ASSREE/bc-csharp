@@ -27,4 +27,4 @@ For bug reporting/requests you can report issues here on github, via feedback-cr
 
 ## Finally
 
-You'are my star and i can love you when my heart to blue mode
+You'are my star but the star but the star isn't mine
